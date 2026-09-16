@@ -13,7 +13,8 @@ Littleton, CO | [Jasou21@proton.me](mailto:Jasou21@proton.me) | 720-496-6790
 - Developed custom software code analyzing old vs. new Federal Acquisition Regulations.
 - Assisted with other client confidential & privileged special projects.
 
-**Assistant Manager Rec Centers and Outdoor Pools | 2021 – 2025**
+**Assistant Manager Rec Centers and Outdoor Pools | 2021 – 2026
+**
 
 - Observed swimmers in pools and conducted in water or poolside saves when necessary.
 - Maintained pool pumps and pool chemical levels to maintain safe swimming environment.
